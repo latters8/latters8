@@ -2,7 +2,7 @@
 🌱 I’m currently learning: Web development, Python, data science, AI, graphic design, or a new language (e.g., Spanish, French).
 💞️ I’m looking to collaborate on: Open-source projects, startups, innovative tech ideas, community-driven initiatives.
 📫 How to reach me: Meditations
-😄 Pronouns: Mr.Latters
+😄 Pronouns: ...the tip of the tongue should be close to the upper backside of the top front teeth.
 ⚡ Fun fact: I’m a coffee enthusiast who collects mugs!
 
 <!---
